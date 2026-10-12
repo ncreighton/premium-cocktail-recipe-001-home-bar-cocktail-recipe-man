@@ -1,0 +1,2 @@
+# premium-cocktail-recipe-001-home-bar-cocktail-recipe-man
+Stop digging through sticky notes and browser bookmarks for your favorite cocktail recipes. Your home bar deserves a system that's as refined as your taste.  This Notion template turns your home bar into a well-curated experience. Centralize every recipe, track your liquor inventory, and instantly know what you can make with what you have. No more
